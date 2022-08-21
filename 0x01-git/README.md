@@ -1,2 +1,2 @@
 doing hard things
-i like doing hard things
+yes doing hard things
